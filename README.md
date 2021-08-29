@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ifiequalsu
+- 👀 I’m interested in music, coding, and gaming!
+- 🌱 I’m currently learning Java, XML, SQL, and C
+- 💞️ I’m looking to collaborate on anything! I want to expand my horizons as it were
+- 📫 How to reach me email me @ ifiequalsu@gmail.com
